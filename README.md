@@ -48,3 +48,11 @@
 
 - $320/person
 - 10hrs
+
+# [Arenales Caves and River Adventure in Puerto Rico](https://www.tripadvisor.com/AttractionProductReview-g147320-d20295875-Arenales_Caves_and_River_Adventure_in_Puerto_Rico-San_Juan_Puerto_Rico.html)
+
+- details tbd
+
+# [Reserva Natural Cabezas de San Juan](https://www.tripadvisor.com/Attraction_Review-g612474-d17471061-Reviews-Reserva_Natural_Cabezas_de_San_Juan-Fajardo_Puerto_Rico.html)
+
+- details tbd
